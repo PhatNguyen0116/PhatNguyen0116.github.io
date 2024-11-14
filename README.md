@@ -1,2 +1,2 @@
 # PhatNguyen0116.github.io
-I am currently a Computer Science student in The University of Information Technology, and a former English-majored student in Ben Tre High School For The Gifted.
+I am currently a Computer Science student in The University of Information Technology, and a former English-majored student in Ben Tre High School For The Gifted. I have experience working as a group as I joined different club during my high school years. And also 
